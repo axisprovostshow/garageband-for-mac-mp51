@@ -1,4 +1,4 @@
-# 
+# rare GarageBand for macOS Addon | auto-tune + lower-thirds is the best GarageBand for macOS addon, featuring auto-tune and lower-thirds. Safe, efficient, and optimized for video
 
 
 
